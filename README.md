@@ -1,0 +1,1 @@
+responsiv_elrendezés_gyak
